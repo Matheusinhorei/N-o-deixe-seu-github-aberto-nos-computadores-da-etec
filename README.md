@@ -1,1 +1,1 @@
-# N-o-deixe-seu-github-aberto-nos-computadores-da-etec
+# Nao-deixe-seu-github-aberto-nos-computadores-da-etec
